@@ -1,2 +1,0 @@
-# machaco17
-mypersonalblog
